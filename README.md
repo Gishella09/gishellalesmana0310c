@@ -1,0 +1,2 @@
+# gishellalesmana0310c
+ICT PRACTICAL TEST SEM1
